@@ -1,5 +1,5 @@
 <p align="center">
-  <sup>If I take a breath, will this murky water fill my lungs up?</sup>
+  <sub>𝘐𝘧 𝘐 𝘵𝘢𝘬𝘦 𝘢 𝘣𝘳𝘦𝘢𝘵𝘩, 𝘸𝘪𝘭𝘭 𝘵𝘩𝘪𝘴 𝘮𝘶𝘳𝘬𝘺 𝘸𝘢𝘵𝘦𝘳 𝘧𝘪𝘭𝘭 𝘮𝘺 𝘭𝘶𝘯𝘨𝘴 𝘶𝘱?</sub>
 </p>
 <p align="center">
 <picture>
@@ -9,11 +9,11 @@
 </picture>
 </p>
 
----
+<p align="center">. ݁₊ ⊹ . ݁˖ . ݁</p>
 <p align="center">꒰ 𝟐𝟎.𝟎𝟔.𝟐𝟎𝟎𝟒 (𝟐𝟎𝐲𝐨) || 𝐡𝐨𝐛𝐛𝐲𝐢𝐬𝐭 𝐚𝐫𝐭𝐢𝐬𝐭 ꒱</p>
 <p align="center">ㅤ♡ྀི ₊ menhera, jirai onna, magical girl in retirement ₊‧°𐐪♡𐑂°‧₊</p>
 
----
+<p align="center">˚₊‧ ꒰ა ☆ ໒꒱ ‧₊˚</p>
 
 <p align="center">⤷ 𝐤𝐢𝐧𝐬: shin tsukimi, kaveh, ena shinonome, arataka reigen 〃</p>
 <p align="center">⤷ 𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬: pmmm, yttd, mp100, vocaloids, bsd, ddlc, mlp, nso, sgm 〃</p>
@@ -21,7 +21,7 @@
 <p align="center">♡ 𝐨𝐭𝐡𝐞𝐫: MARETU is my oshi since 2018, i adore my melody and a huge astronomy nerd ⋆.˚</p>
 <p align="center"><sup>𝐜𝐫𝐞𝐝𝐢𝐭𝐬: lyrics - umbrabyte yt, pfp - mnhr_chan twt</sup></p>
 
----
+<p align="center">. ݁₊ ⊹ . ݁˖ . ݁</p>
 <p align="center">
 <picture>
   <source media="(prefers-color-scheme: dark)" srcset="https://i.imgur.com/jNektla.png">
@@ -30,5 +30,5 @@
 </picture>
 </p>
 <p align="center">
-<sup>If I close my eyes, can I bare this horrid thing you call love?</sup>
+<sup>𝘐𝘧 𝘐 𝘤𝘭𝘰𝘴𝘦 𝘮𝘺 𝘦𝘺𝘦𝘴, 𝘤𝘢𝘯 𝘐 𝘣𝘢𝘳𝘦 𝘵𝘩𝘪𝘴 𝘩𝘰𝘳𝘳𝘪𝘥 𝘵𝘩𝘪𝘯𝘨 𝘺𝘰𝘶 𝘤𝘢𝘭𝘭 𝘭𝘰𝘷𝘦?</sup>
 </p>
