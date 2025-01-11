@@ -13,7 +13,7 @@
 <p align="center">꒰ 𝟐𝟎.𝟎𝟔.𝟐𝟎𝟎𝟒 (𝟐𝟎𝐲𝐨) || 𝐡𝐨𝐛𝐛𝐲𝐢𝐬𝐭 𝐚𝐫𝐭𝐢𝐬𝐭 ꒱</p>
 <p align="center">ㅤ♡ྀི ₊ menhera, jirai onna, magical girl in retirement ₊‧°𐐪♡𐑂°‧₊</p>
 
-<p align="center">˚₊‧ ꒰ა ☆ ໒꒱ ‧₊˚</p>
+<p align="center">˚₊‧ ꒰ა 𓂋 ໒꒱ ‧₊˚</p>
 
 <p align="center">⤷ 𝐤𝐢𝐧𝐬: shin tsukimi, kaveh, ena shinonome, arataka reigen 〃</p>
 <p align="center">⤷ 𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬: pmmm, yttd, mp100, vocaloids, bsd, ddlc, mlp, nso, sgm 〃</p>
