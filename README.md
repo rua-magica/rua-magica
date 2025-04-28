@@ -20,7 +20,7 @@
 <p align="center">⤷ 𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬: pmmm, yttd, mp100, vocaloids, bsd, ddlc, mlp, nso, sgm 〃</p>
 <p align="center">× 𝐞𝐱-𝐟𝐚𝐧𝐝𝐨𝐦𝐬: gi, pjsekai, dr, fnaf, warrior cats 〃</p>
 <p align="center">♡ 𝐨𝐭𝐡𝐞𝐫: MARETU is my oshi since 2018, i adore my melody and a huge astronomy nerd ⋆.˚</p>
-<p align="center"><sup>𝐜𝐫𝐞𝐝𝐢𝐭𝐬: lyrics - umbrabyte yt, pfp - mnhr_chan twt</sup></p>
+<p align="center"><sup>𝐜𝐫𝐞𝐝𝐢𝐭𝐬: lyrics - umbrabyte yt, pfp - madoka magica official art</sup></p>
 
 <p align="center">. ݁₊ ⊹ . ݁˖ . ݁</p>
 <p align="center">
