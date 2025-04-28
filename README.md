@@ -12,6 +12,7 @@
 <p align="center">. ݁₊ ⊹ . ݁˖ . ݁</p>
 <p align="center">꒰ 𝟐𝟎.𝟎𝟔.𝟐𝟎𝟎𝟒 (𝟐𝟎𝐲𝐨) || 𝐡𝐨𝐛𝐛𝐲𝐢𝐬𝐭 𝐚𝐫𝐭𝐢𝐬𝐭 ꒱</p>
 <p align="center">ㅤ♡ྀི ₊ menhera, jirai onna, magical girl in retirement ₊‧°𐐪♡𐑂°‧₊</p>
+<p align="center">ㅤ◞♡ please please PLEASE interact with me if you want to be friends!!!!! i LOVE being bothered!!!!!!!! >ᴗ<</p>
 
 <p align="center">˚₊‧ ꒰ა 𓂋 ໒꒱ ‧₊˚</p>
 
