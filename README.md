@@ -15,8 +15,7 @@
 
 <p align="center">˚₊‧ ꒰ა 𓂋 ໒꒱ ‧₊˚</p>
 
-<p align="center">⤷ 𝐤𝐢𝐧𝐬: pathetic losers 🥀 </p>
-<p align="center">shin tsukimi, kaveh, ena shinonome, arataka reigen, akinashi haru (?) 〃</p>
+<p align="center">⤷ 𝐤𝐢𝐧𝐬: pathetic losers vro 🥀 shin tsukimi, kaveh, arataka reigen, akinashi haru (?) 〃</p>
 <p align="center">⤷ 𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬: pmmm, yttd, mp100, saihate station, vocaloids, bsd, ddlc, mlp, nso, sg 〃</p>
 <p align="center">× 𝐞𝐱-𝐟𝐚𝐧𝐝𝐨𝐦𝐬: gi, pjsekai, dr, fnaf, warrior cats 〃</p>
 <p align="center">♡ 𝐨𝐭𝐡𝐞𝐫: MARETU is my oshi since 2018, i adore my melody and a huge astronomy nerd ⋆.˚</p>
