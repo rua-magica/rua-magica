@@ -10,14 +10,14 @@
 </p>
 
 <p align="center">. ݁₊ ⊹ . ݁˖ . ݁</p>
-<p align="center">꒰ 𝟐𝟎.𝟎𝟔.𝟐𝟎𝟎𝟒 (𝟐1𝐲𝐨) || 𝐡𝐨𝐛𝐛𝐲𝐢𝐬𝐭 𝐚𝐫𝐭𝐢𝐬𝐭 ꒱</p>
+<p align="center">꒰ 𝟐1𝐲𝐨 || 𝐡𝐨𝐛𝐛𝐲𝐢𝐬𝐭 𝐚𝐫𝐭𝐢𝐬𝐭 ꒱</p>
 <p align="center">ㅤ♡ྀི ₊ menhera, jirai onna, magical girl in retirement ₊‧°𐐪♡𐑂°‧₊</p>
 
 <p align="center">˚₊‧ ꒰ა 𓂋 ໒꒱ ‧₊˚</p>
 
 <p align="center">⤷ 𝐤𝐢𝐧𝐬: pathetic losers vro 🥀 shin tsukimi, kaveh, arataka reigen, akinashi haru (?) 〃</p>
-<p align="center">⤷ 𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬: pmmm, yttd, mp100, saihate station, vocaloids, bsd, ddlc, mlp, nso, sg 〃</p>
-<p align="center">× 𝐞𝐱-𝐟𝐚𝐧𝐝𝐨𝐦𝐬: gi, pjsekai, dr, fnaf, warrior cats 〃</p>
+<p align="center">⤷ 𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬: pmmm, yttd, mp100, vocaloids, ddlc, mlp 〃</p>
+<p align="center">× 𝐞𝐱-𝐟𝐚𝐧𝐝𝐨𝐦𝐬: gi, pjsekai, dr, fnaf, warrior cats, bsd, nso 〃</p>
 <p align="center">♡ 𝐨𝐭𝐡𝐞𝐫: MARETU is my oshi since 2018, i adore my melody and a huge astronomy nerd ⋆.˚</p>
 <p align="center"><sup>𝐜𝐫𝐞𝐝𝐢𝐭𝐬: lyrics - umbrabyte yt, pfp - madoka magica official art</sup></p>
 
