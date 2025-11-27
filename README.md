@@ -21,4 +21,4 @@
 <img align="right" src="https://media1.tenor.com/m/2F7QP9tDPW0AAAAd/let-me-in-uncanny.gif" width="250" height="200"/>
 <p align="left">MARETU-sama... Please, just one more song. Just one more please MARETU-sama one more song I'm begging you please. PLEASE please one more release one more album MARETU-sama... PLEASE MARETU DON'T LEAVE US NO PLEASE MARETU SAMA JUST ONE MORE SONG PLEASE DROP AN ALBUM PLEASE TWEET SOMETHING I CAN'T TAKE IT PLEASE I LOVE YOU</p>
 <p align="center"><img src="https://pixelsafari.neocities.org/dividers/more/blood.png"></p>
-<img align="left" src="https://iili.io/fC3IISI.png"> <img align="left" src="https://iili.io/fCdpasf.png"> <img align="left" src="https://iili.io/fC24J7j.png"> 
+<img align="left" src="https://iili.io/fC3IISI.png"> <img align="left" src="https://iili.io/fC24J7j.png"> 
