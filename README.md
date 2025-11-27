@@ -12,7 +12,7 @@
 
 <p align="center"><img src="https://pixelsafari.neocities.org/dividers/more/eyes.gif"></p>
 
-<p align="center"> 𝐤𝐢𝐧𝐬: pathetic losers vro 🥀 shin tsukimi, kaveh, arataka reigen, lowk both haru and shion</p>
+<p align="center"> 𝐤𝐢𝐧𝐬: pathetic losers vro 🥀 shin tsukimi, kaveh, arataka reigen</p>
 <p align="center"> 𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬: pmmm, yttd, mp100, vocaloids, ddlc, mlp, gi </p>
 
 <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/more/cat4.png" width="400" height="100"/></p>
