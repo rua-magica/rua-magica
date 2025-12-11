@@ -25,7 +25,6 @@
 
 <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/more/cat4.png" width="400" height="100"/></p>
 <p align="center">The snake will continue to swallow itself whole.</p>
-<p align="center"> <img src="https://i.postimg.cc/xjhjXnGh/gh15.png"></p>
 <p align="center"><img src="https://iili.io/fCdcOWF.png"></p>
 
 ---
