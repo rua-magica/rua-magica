@@ -19,8 +19,8 @@
   
 <p align="center"><img src="https://pixelsafari.neocities.org/dividers/more/eyes.gif"></p>
 
-<p align="center"> 𝐤𝐢𝐧𝐬: shin tsukimi, kaveh. lowk tatsunami shion and akinashi haru too bruh idk</p>
-<p align="center"> 𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬: pmmm, yttd, mp100, vocaloids, ddlc, mlp, gi </p>
+<p align="center"> 𝐤𝐢𝐧𝐬: kaveh. reanalyzing → aventurine, tatsunami shion, shin tsukimi</p>
+<p align="center"> 𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬: pmmm, yttd, mp100, vocaloids, ddlc, mlp, gi, hsr </p>
 <p align="center"> 𝐟𝐚𝐯 𝐯𝐨𝐜𝐚𝐏𝐬: MARETU, PEPOYO, ¿?Shimon, umbrabyte </p>
 
 <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/more/cat4.png" width="400" height="100"/></p>
