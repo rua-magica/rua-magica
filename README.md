@@ -15,7 +15,7 @@
 <p align="center"> <img src="https://pixelsafari.neocities.org/dividers/heartbeat.gif" width="400" height="50"/></p>
 
 <p align="center">21 y.o. | INTP 4w5</p>
-<p align="center">ㅤjirai menhera artist</p>
+<p align="center">ㅤjirai - menhera - artist - professional yearner</p>
   
 <p align="center"><img src="https://pixelsafari.neocities.org/dividers/more/eyes.gif"></p>
 
